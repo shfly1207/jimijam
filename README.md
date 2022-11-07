@@ -1,3 +1,3 @@
-# Kokoa Cline 2020 Update
+# Kokoa Clone 2020 Update
 
-CSS has gotten so much better!
+BTS is going to military
